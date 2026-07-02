@@ -6,15 +6,10 @@
 
 <em>
 
-"The most important thing is to try and inspire people<br/>
-so that they can be great in whatever they want to do."<br/>
+"You have to work hard in the dark to shine in the light."<br/>
 
 </em>
 
 <b>— Kobe Bryant</b>
-
-<br/><br/>
-
-🌱🌱🌱🌱🌱🌱🌱🌱🌱🌱🌱🌱🌱🌱🌱🌱🌱🌱🌱🌱🌱🌱🌱🌱🌱🌱🌱🌱🌱🌱
 
 </div>
